@@ -1,0 +1,1 @@
+# exercicioslabinformatica07092024
